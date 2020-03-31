@@ -1,2 +1,2 @@
-# mahaveerkidsandmenswear.github.io
+# mahaveerk&mwear.github.io
 A Fashion super store
